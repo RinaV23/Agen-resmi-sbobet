@@ -4,4 +4,4 @@ Menyediakan berbagai permainan sportbook, live casino, sabung ayam, joker slot,d
 Membutuhkan registrasi untuk menjadi member
 Live chat 24 jam di jamin aman.
 
-Silakan klik disini <a href="https://bolapedia.vip/register">Pendaftaran</a>.
+Silakan klik disini <a href="https://bolapedia.vip/register" rel="dofollow">Pendaftaran</a>.
